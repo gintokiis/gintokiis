@@ -1,5 +1,3 @@
-<div align="center">
-
 
 ![](https://komarev.com/ghpvc/?username=gintokiis&color=b2d8fd&label=gintoki+kisses+me
 )
@@ -9,3 +7,8 @@
 ![IMG-20240707-WA0389](https://github.com/gintokiis/gintokiis/assets/174838171/1c08cbfe-7115-4c32-8c1d-ad571eeb9345)
 
 𝘐 𝘭𝘰𝘷𝘦 𝘮𝘺 𝑯𝒊𝒋𝒊𝒌𝒂𝒕𝒂/𝐅𝐲𝐨𝐝𝐨𝐫 ! !
+<div align="center">
+
+![](https://komarev.com/ghpvc/?username=gintokiis&color=b2d8fd&label=gintoki+kisses+me
+)
+  </div>
